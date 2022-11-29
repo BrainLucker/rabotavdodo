@@ -11,18 +11,18 @@
 
 Это я в 2018 помогаю подруге с открытием ее собственной фитнес-студии (еще где-то была фотка как едим пиццу). А уже два года спустя она успешно работает маркетолом в Додо.
 
-<img src="https://i.imgur.com/EnI8ewk.jpg" alt="drawing" width="943"/>
+<img src="https://i.imgur.com/EnI8ewk.jpg" alt="drawing" width="710"/>
  
 
 Здесь я вписался раздавать пиццу на фестивале по Звездным Войнам, было очень здорово!
 
-<img src="https://i.imgur.com/IoRLqBa.jpg" alt="photo_2" width="533"/>   <img src="https://i.imgur.com/aWG01dE.jpg" alt="photo_3" width="400"/>
+<img src="https://i.imgur.com/IoRLqBa.jpg" alt="photo_2" width="400"/>   <img src="https://i.imgur.com/aWG01dE.jpg" alt="photo_3" width="300"/>
 
  
 
 А это мы в Казани готовим себе обед в день рождения подруги :)
 
-<img src="https://i.imgur.com/uFMiclX.jpg" alt="photo_4" width="533"/>   <img src="https://i.imgur.com/qHmKsfD.jpg" alt="photo_5" width="400"/>
+<img src="https://i.imgur.com/uFMiclX.jpg" alt="photo_4" width="400"/>   <img src="https://i.imgur.com/qHmKsfD.jpg" alt="photo_5" width="300"/>
 
  
  
